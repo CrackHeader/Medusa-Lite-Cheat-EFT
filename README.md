@@ -6,7 +6,7 @@
 ![image](https://github.com/user-attachments/assets/b126fb56-f547-4600-a89b-2b8764449d46)
 
 🐍 Medusa Lite — Junior Version of the Medusa Cheat for Escape From Tarkov
-Medusa Lite is the lighter version of the well-known Medusa cheat — though the word Lite is more of a formality here. This is a full-fledged multifunctional tool designed for raid domination, RMT farming, and the full thrill of cheating — with a focus on stability and safety.
+Medusa Lite is the lighter version of the well-known Medusa cheat — though the word Lite is more of a formality here. This is a full-fledged multifunctional tool designed for raid domination, RMT farming, and the full thrill of cheating — with a focus on stability and safety..
 
 🔍 Key Features:
 🎯 Aimbot — fully customizable, from snappy to smooth styles.
