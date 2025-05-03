@@ -5,7 +5,30 @@
 
 ![image](https://github.com/user-attachments/assets/b126fb56-f547-4600-a89b-2b8764449d46)
 
-Meet the junior version of the Medusa cheat for Tarkov. Despite the Lite postscript, this cheat looks like Lite only against the background of the Rage version. In general, this is a full-fledged multifunctional software, inside which there is almost everything you need for dominance, RMT and other delights of the game with a good cheat. The main difference from the senior version is a smaller number of exploits and risky features. Also, there is no KD dropper. I would say that Medusa Lite is similar to Authority, but with its own features. In general, this cheat can be described as a full-fledged software with a wide range of hacking types. If you need reliable software with an aimbot, ESP and basic misc, then you can safely buy Medusa Lite, you will definitely be satisfied with your choice!
+🐍 Medusa Lite — Junior Version of the Medusa Cheat for Escape From Tarkov
+Medusa Lite is the lighter version of the well-known Medusa cheat — though the word Lite is more of a formality here. This is a full-fledged multifunctional tool designed for raid domination, RMT farming, and the full thrill of cheating — with a focus on stability and safety.
+
+🔍 Key Features:
+🎯 Aimbot — fully customizable, from snappy to smooth styles.
+
+👁 ESP — players, items, corpses, extracts, and more.
+
+🛠 Basic Misc — hotkey features, no recoil, crosshair overlay, anti-stuck, etc.
+
+⚙️ Maximized stability — carefully debugged, minimal crashes and detections.
+
+⚔️ Differences from the Rage Version:
+No exploits or KD dropper.
+
+Reduced risk features for enhanced safety.
+
+Positioned closer to Authority, but with its own twist.
+
+🤝 Who is it for?
+If you're looking for a stable and reliable cheat with all essential tools to dominate — Medusa Lite has you covered. It’s not Rage-level aggressive, but it’s a professional-grade product worth every cent.
+
+📦 TL;DR:
+Medusa Lite is a versatile solution for players who want a powerful yet safe cheat with aimbot, ESP, and solid misc tools. It works — and it works well. Highly recommended.
 
 
 
